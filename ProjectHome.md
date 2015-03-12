@@ -1,0 +1,1 @@
+hourly updated riversurf info gif, watermark 380-460cm is best to surf
